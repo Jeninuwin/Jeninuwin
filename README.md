@@ -1,6 +1,6 @@
 👋🏽 Hi, my name is Jenny Nguyen!
 
-🎓 Soon to be grad with a Bachelor's of Science in Computer Science with minors in Software Engineering and Graphic Design. (May 2022)
+🎓 Bachelor's of Science in Computer Science with minors in Software Engineering and Graphic Design. (May 2022)
 
 🌴 Currently residing in South Dakota, where the weather is always changing every 5 minutes, but Cali is my true home.
 
